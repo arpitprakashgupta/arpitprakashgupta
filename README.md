@@ -1,4 +1,4 @@
-# 💫 About Me:
+# 💫 Hii I'm Arpit
 🔭 I'm currently a student at IIITD in the EVE branch<br>📌 I'm currently learning about the world of Hardware & Software<br>
 
 
